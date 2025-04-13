@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Mohamed Amine 
 - 👀 I’m interested in IT
-- 🌱 I’m currently learning computer of engering 
+- 🌱 I’m currently learning computer of engineering
 - 📫 How to reach me mohamed1998310amine@gmail.com
 
 
